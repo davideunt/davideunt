@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @davideunt
+- 👀 I’m interested in Football
+- 🌱 I’m currently learning Coding
+- 💞️ I’m looking to collaborate on games
+- 📫 How to reach me message
